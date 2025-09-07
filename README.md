@@ -13,4 +13,3 @@ I work as a paramedic in an ambulance. Before that, I worked as a firefighter an
 - 💬 Ask me about sports, parachuting, diving, snowboarding, or motorcycles — these are my hobbies.
 - 📫 How to reach me: **arif254422@gmail.com**
 - ⚡ Fun fact: I like extreme sports and believe that life is an adventure.
-  
